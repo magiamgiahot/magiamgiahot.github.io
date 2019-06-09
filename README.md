@@ -1,1 +1,0 @@
-# magiamgiahot.github.io
